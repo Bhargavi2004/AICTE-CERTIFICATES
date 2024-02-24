@@ -1,2 +1,2 @@
 # AICTE-CERTIFICATES
-Iam uploading the couse completion certificates received from AICTE(Eduskills)
+Iam uploading the course completion certificates received from AICTE(Eduskills)
